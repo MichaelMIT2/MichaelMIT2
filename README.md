@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MichaelMIT2
+- 👀 I’m interested in Computers
+- 🌱 I’m currently learning Coding
+- 📫 How to reach me on My email ismailvivid1@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Did you Know Christopher Latham Sholes made the QWERTY keyboard.
